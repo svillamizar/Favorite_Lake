@@ -1,1 +1,1 @@
-My favorite lake is: Tona Lake
+My favorite lake is: Favorite Lake
