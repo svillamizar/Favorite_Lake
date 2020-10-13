@@ -1,0 +1,1 @@
+My favorite lake is: Tahoe Lake
